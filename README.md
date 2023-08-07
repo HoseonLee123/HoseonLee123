@@ -3,7 +3,7 @@
 
 + 2018.03 ~ 2022.02
   + I studied Economics and Finance at Hanyang University.
-  + Just study hard(4.31/4.5) without dream. 🤣
+  + Just studied hard(4.31/4.5) without dream. 🤣
 ---
 + 2022
   + During this period, I deeply thought about my life and started studying computer.
